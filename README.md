@@ -1,3 +1,9 @@
+If you need a CRM already done or make your own one, just contact me via whatsapp: +40 722246221
+
+The CRM from photos are on sale on upwork!
+https://www.upwork.com/services/product/development-it-crm-software-all-type-of-businesses-we-implement-all-for-your-growing-1793223911032179640?ref=project_share
+
+
 ![11](https://github.com/user-attachments/assets/27e4afdb-f8b2-435f-9653-c410c0cbbe08)
 ![10](https://github.com/user-attachments/assets/12700b9d-c065-43f2-abaf-d092e5e32f38)
 ![9](https://github.com/user-attachments/assets/d2805c13-d6f1-4219-a578-91c380020bf7)
